@@ -1,1 +1,1 @@
-# Syed-Mohammed-Haider-Rizvi
+# SyedMohammedHaiderRizvi
